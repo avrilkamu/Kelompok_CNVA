@@ -1,2 +1,2 @@
 # Kelompok_CNVA
-nama anggota : Avril Kamu
+nama : avril kamu
