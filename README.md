@@ -1,2 +1,2 @@
 # Kelompok_CNVA
-nama : avril kamu
+nama : agnes kamu
